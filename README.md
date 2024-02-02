@@ -1,3 +1,0 @@
-# gitMehak-
-<br>
-Author-Mehak
